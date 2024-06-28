@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **s.nitish@iitg.ac.in or nitishngh2206@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
